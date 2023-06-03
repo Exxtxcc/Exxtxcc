@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Exxtxcc
+- 👀 I’m interested in gaming and friends 
+- 🌱 I’m currently learning something that is not public
+- 💞️ I’m looking to collaborate on something fun
+- 📫 How to reach me my Instagram @ex_t_cc
